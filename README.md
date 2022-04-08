@@ -10,3 +10,5 @@
 奈飞文化手册：https://www.yuque.com/liberty/mr2lsl/yfg7qu
 
 战略思维：https://www.yuque.com/liberty/mr2lsl/fkn5qm
+
+战略规划与执行：https://www.yuque.com/liberty/mr2lsl/lvubt0
